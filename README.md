@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @shrek-pupsek
+- 👋 Hi, I’m nino!!
 - 👀 I’m interested in computers and silly things
 - 🌱 I’m currently learning french, english and programmist things
 - 💞️ I’m looking to collaborate on nothing??
